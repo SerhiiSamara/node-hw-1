@@ -7,4 +7,4 @@
 3. Посилання на list:
    https://drive.google.com/file/d/1o-aquMtOvUO0fkS7pKmYn8-1PV2zjHH_/view?usp=share_link
 4. Посилання на remove:
-   https://drive.google.com/file/d/1PnmIgf0aJm7V9AMv7ujGQozP0Qvsjo33/view?usp=share_link
+   https://drive.google.com/file/d/1G-Ze9o1NXLMfV1XIBuY3ymN0lvjw1KhP/view?usp=share_link
